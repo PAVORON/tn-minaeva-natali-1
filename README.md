@@ -1,3 +1,3 @@
 Учебный репозиторий 
-Студент Минаева Наталья https://t.me/murmaider13
-Наставник Набокова Татьяна https://www.behance.net/tati_nabokova
+Студент Воронцов Павел https://vk.com/id24734840
+Наставник Минаева Наталья https://t.me/murmaider13
